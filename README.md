@@ -1,0 +1,1 @@
+# Synaptix-Frontier-AI-Hack-proposal
